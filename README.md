@@ -1,0 +1,2 @@
+# AMSGithub.uz
+Be polite!
